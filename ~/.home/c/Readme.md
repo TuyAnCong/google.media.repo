@@ -4,6 +4,6 @@
 
 File Đính Kèm Theo Quote Image Command Line:
 
-🏠Website Có Lưu trữ: http://googleapiluutru.gilitch.me/1:/
+🏠Website Có Lưu trữ: http://googleapiluutru.giltch.me/1:/
 
-🔔Website Có Lưu Trữ Dữ liệu: http://google.gilitch.me/dulieu.html
+🔔Website Có Lưu Trữ Dữ liệu: http://google.giltch.me/dulieu.html
